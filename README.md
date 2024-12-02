@@ -1,4 +1,4 @@
-![WX20241027-204706@2x (1)](https://github.com/user-attachments/assets/7234122f-6c35-4048-9285-88f121df89de)# Play Incredibox Sprunki Game Online 🕹 Sprunki Phase Mod Games
+# Play Incredibox Sprunki Game Online 🕹 Sprunki Phase Mod Games
 
 ## [Play Incredibox Sprunki 🕹️ Now](https://incrediboxsprunki.pro)
 ![incredibox-sprunki (1)](https://github.com/user-attachments/assets/db6357b3-c105-4d21-bbfd-958d88359711)
